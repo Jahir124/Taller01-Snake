@@ -22,3 +22,10 @@ José Salazar (Integrante 3)
 ![Captura de pantalla (2)](https://github.com/user-attachments/assets/d2b41074-452b-454c-b983-9870ea32d795)
 ![Captura de pantalla (1)](https://github.com/user-attachments/assets/4f4d4695-a5eb-450d-be81-5e3f22ed06dd)
 
+
+
+## Integrante 3
+![Captura de pantalla 2025-05-14 164554](https://github.com/user-attachments/assets/dc4aebb8-daf8-4ddb-8c3e-a78ac64ca390)
+![Captura de pantalla 2025-05-14 164406](https://github.com/user-attachments/assets/47b5ba8d-1cb1-4de7-830d-d07ed7355c72)
+
+
